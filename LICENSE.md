@@ -1,4 +1,4 @@
-# 
+# Enhance Adobe Audition for PC | Adobe Audition for Windows with Adobe Audition for PC | Adobe Audition for Windows advanced Extension: macro-recording & batch-processing, the #1
 
 
 
